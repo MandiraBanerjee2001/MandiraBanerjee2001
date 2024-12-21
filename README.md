@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **bmandira2001@gmail.com**
 
-- 📄 Know about my experiences [https://in.docworkspace.com/d/sIOC16ZfrAceH2KsG](https://in.docworkspace.com/d/sIOC16ZfrAceH2KsG)
+- 📄 Know about my experiences [https://in.docworkspace.com/d/sIOC16ZfrAceH2KsG](https://drive.google.com/file/d/1TPw_enCzM2Zj6eph4gHeUU29XrVp7zjM/view?usp=sharing)
 
 - ⚡ Fun fact **I am funny**
 
